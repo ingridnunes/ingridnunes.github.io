@@ -1,2 +1,0 @@
-# ingridnunes.github.io
-Homepage
